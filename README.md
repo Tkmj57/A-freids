@@ -1,4 +1,4 @@
-I'm  lonely who develop fixed this fork..
+I'm  lonely who fixed this fork..
 please follow me 💙
 
 ## Introduction
